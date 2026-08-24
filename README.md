@@ -1,10 +1,2 @@
-<p align="center">
-  <img src="./chain.gif" alt="my gif" width="100%" height="80%">
-</p>
-<p align="center"> ⊹ ࣪ ˖ just check carrd out okay I'm bored and can't be bothered to code a git rn ݁ ˖Ი𐑼⋆ </p>
-<p align="center">
-  <a href="https://monnfraise.carrd.co" target="_blank">my carrd !</a>
-</p>
-<p align="center">
-  <img src="./zukipotg.gif" alt="my gif">
-</p>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=28&letterSpacing=&duration=3000&pause=2000&color=D2CAB8&background=571D1D00&vCenter=true&width=280&height=37&lines=You+just+don't+know+it+yet+.+.+.;.+.+.+and+I+love+you+-)](https://git.io/typing-svg) <br>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Bebas+Neue&size=28&letterSpacing=&duration=2800&pause=2100&color=571D1DAE&background=571D1D00&vCenter=true&width=190&height=37&lines=%2C+but+you+love+me+.+.+.;the+same+.)](https://git.io/typing-svg)
