@@ -4,7 +4,7 @@
 <br>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Montenegrin+Gothic+One&size=36&letterSpacing=&duration=3000&pause=2000&color=D2CAB8&background=571D1D00&vCenter=true&width=530&lines=You+just+don't+know+it+yet+.+.+.;.+.+.+and+I+love+you+-)](https://git.io/typing-svg) <br>
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Montenegrin+Gothic+One&size=30&letterSpacing=&duration=2000&pause=3300&color=571D1DAE&background=571D1D00&vCenter=true&width=530&lines=%2C+but+you+love+me+.+.+.;the+same+.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Montenegrin+Gothic+One&size=30&letterSpacing=&duration=1730&pause=3300&color=571D1DAE&background=571D1D00&vCenter=true&width=530&lines=%2C+but+you+love+me+.+.+.;the+same+.)](https://git.io/typing-svg)
 
 <br>
 
