@@ -13,11 +13,11 @@
 ![](https://komarev.com/ghpvc/?username=crxshedyou&color=3B0606&label=devoted+believers) <br>
 ⫘⫘⫘⫘⫘⫘⫘ <br>
 
-$\color{#D2CAB8}{ㅤㅤㅤ𝗯𝗮𝘅ㅤㅤㅤ/ㅤㅤㅤ𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜ㅤㅤ :dagger:}$ <br>
+$\color{#3B0606}{ㅤㅤㅤ𝗯𝗮𝘅ㅤㅤㅤ/ㅤㅤㅤ𝙖𝙣𝙮𝙩𝙝𝙞𝙣𝙜ㅤㅤ :dagger:}$ <br>
 
 <sub>ᛝㅤㅤ╰ㅤㅤ 𝘩𝘦ㅤㅤ𝘵𝘩𝘦𝘺ㅤㅤ𓏵 </sub> <br>
 
-$\color{#D2CAB8}{⸝⸝ㅤ𝘯𝘰ㅤㅤㅤ𝙡𝙖𝙗𝙚𝙡ㅤㅤ.ᐟ.ᐟㅤ◞}$ <br>
+$\color{#3B0606}{⸝⸝ㅤ𝘯𝘰ㅤㅤㅤ𝙡𝙖𝙗𝙚𝙡ㅤㅤ.ᐟ.ᐟㅤ◞}$ <br>
 
 <sub>☆ㅤㅤ݁ㅤ𝘵𝘸𝘦𝘯𝙩𝙮ㅤ</sub>
 
