@@ -1,5 +1,5 @@
 <div align="center">
-<img src="centr.gif" width="50%">
+<img src="banner1.gif" width="400%">
 </div>
 <br>
 
